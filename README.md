@@ -1,1 +1,1 @@
-# dtxxghjlkm
+#eftariylar-va-slavyanlar
